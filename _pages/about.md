@@ -36,17 +36,23 @@ zwischen Deutschland und Indien fördern.
 Ram Mall lebt heute in Bonn.
 
 ## Lehrtätigkeit
-In Indien erhielt er nach seinem M.A. eine Dozentur für Philosophie an
-der Universität Gorakhpur/Indien im Jahre 1959.1960 wechselte er zur
-Agra-Universität /Indien. Von 1964 bis 1967 lehrte er Philosophie an der
-Jadavpur University in Kolkata /Indien. Von 1977 bis 1989 lehrte er
-Philosophie an der Universität Trier. Von 1989 bis 1998 lehrte Mall an
-den Universitäten Wuppertal, Bremen und Heidelberg und von 1998 bis
-2005 an der LMU München Philosophie und Religionswissenschaft. Im
-Sommersemester 1999 lehrte er als Gastprofessor an der Universität
-Wien. Ab 2005 lehrte er an der FSU Jena. Seit 2016 ist Mall
-Seniorprofessor am Lehrstuhl für Religionswissenschaft der Universität
-Jena.
+In Indien erhielt er nach seinem M.A. eine Dozentur für
+Philosophie an der Universität Gorakhpur/Indien im Jahre
+1959.1960 wechselte er zur Agra-Universität /Indien.
+
+Von 1964 bis 1967 lehrte er Philosophie an der Jadavpur
+University in Kolkata /Indien.
+Von 1977 bis 1989 lehrte er Philosophie an der Universität Trier.
+
+Von 1989 bis 1998 lehrte Mall an den Universitäten Wuppertal,
+Bremen und Heidelberg und von 1998 bis 2005 an der LMU
+München Philosophie und Religionswissenschaft.
+
+Im Sommersemester 1999 lehrte er als Gastprofessor an der
+Universität Wien. Ab 2005 lehrte er an der FSU Jena.
+
+Seit 2016 ist Mall Seniorprofessor am Lehrstuhl für
+Religionswissenschaft der Universität Jena.
 
 ## Außeruniversitäre Tätigkeiten
 1991 gründete er die Gesellschaft für interkulturelle Philosophie (GIP),
@@ -56,30 +62,35 @@ interkulturellen Philosophie. Rodopi Verlag, Amsterdam. Ferner ist er in
 dem Editorial Advisory Board der Reihe: Philosophy and the Global
 Context. New York/Oxford.
 
-## Werk
+## Kerngedanke seiner interkulturellen philosophischen Orientierung
 Seinen Forschungen liegt grundsätzlich die interkulturelle
-philosophische Überzeugung zugrunde, dass die eine philosophia
+philosophische Überzeugung zugrunde, dass die eine
+„philosophia perennis“ niemandes Besitz allein ist. Sie
+bedarf zwar der orthaften philosophischen
+Konventionen/Traditionen, geht jedoch in keiner dieser
+Traditionen restlos auf. Sie ist daher „orthaft ortlos“.
+Ebenso verhält es sich mit der religio perennis.
 
-perennis niemandes Besitz allein ist. Sie bedarf zwar der orthaften
-philosophischen Konventionen/Traditionen, geht jedoch in keiner dieser
-Traditionen restlos auf. Sie ist daher „orthaft ortlos“. Ebenso verhält es
-sich mit der religio perennis. In diesem Sinne beschäftigt er sich zurzeit
-mit den diversen Themen der Philosophie wie z. B. mit der
-Erkenntnistheorie, Logik, Ethik/Moral, Ästhetik, den Menschenrechten
-aus interkultureller Perspektive.
+In diesem Sinne beschäftigt er sich zurzeit mit den
+diversen Themen der Philosophie wie z. B. mit der
+Erkenntnistheorie, Logik, Ethik/Moral, Ästhetik, den
+Menschenrechten aus interkultureller Perspektive.
 
-Philosophie qua Philosophie ist eigentlich anthropologisch verankert.
-Und dies macht deutlich, dass es Überlappungen unter den
-wissenschaftlichen Betätigungen der Menschen gibt trotz der
-kulturbedingten Besonderheiten. Im Bereich der Kommunikation, ob rein
-theoretisch oder praktisch, geht seine Forschungsintention von der
-Überzeugung aus, dass es ein Primat der Kommunikation vor dem
-Konsens gibt, auch wenn die regulative Idee des Konsenses ihre volle
-Berechtigung besitzt. Das Primat der Kommunikation befähigt uns, den
-Dissens ernst zu nehmen und ihn nicht bloß reduktiv zu behandeln.
-Eine solche Sichtweise der Problematik erzeugt
-Kompromissbereitschaft, was wiederum Kommunikation ermöglicht. Es
-geht um eine Verzichtleistung auf den Absolutheitsanspruch, denn die
-Absolutheit der Wahrheit (wenn es sie geben sollte) darf nicht
-verwechselt werden mit der Absolutheit des menschlichen Anspruchs
-auf sie.
+Philosophie qua Philosophie ist eigentlich
+anthropologisch verankert. Und dies macht deutlich, dass
+es Überlappungen unter den wissenschaftlichen
+Betätigungen der Menschen gibt trotz der kulturbedingten
+Besonderheiten. Im Bereich der Kommunikation, ob rein
+theoretisch oder praktisch, geht seine
+Forschungsintention von der Überzeugung aus, dass es
+ein Primat der Kommunikation vor dem Konsens gibt,
+auch wenn die regulative Idee des Konsenses ihre volle
+Berechtigung besitzt. Das Primat der Kommunikation
+befähigt uns, den Dissens ernst zu nehmen und ihn nicht
+bloß reduktiv zu behandeln. Eine solche Sichtweise der
+Problematik erzeugt Kompromissbereitschaft, was
+wiederum Kommunikation ermöglicht. Es geht um eine
+Verzichtleistung auf den Absolutheitsanspruch, denn die
+Absolutheit der Wahrheit (wenn es sie geben sollte) darf
+nicht verwechselt werden mit der Absolutheit des
+menschlichen Anspruchs auf sie.
